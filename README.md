@@ -14,7 +14,7 @@ and creating visual communication that meets their objectives.
 
 My multi-disciplinary skill set that integrates UI design, <strong>common sense</strong>, <br>
 knowledge of UX & Front-End development languages, Branding, Visual designs, <br>
-and </strong>Good sense of humor<strong> makes me a valued contributor. 😊 😉
+and <strong>Good sense of humor</strong> makes me a valued contributor. 😊 😉
 
 #### Have a glimpse of my work here 👉🏽 https://linktr.ee/deep_designer 
 
